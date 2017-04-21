@@ -1,2 +1,0 @@
-# soficshah.github.io
-sdbsgsdhsd
